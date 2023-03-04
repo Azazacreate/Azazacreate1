@@ -1,3 +1,3 @@
 Start
 
-**Now we can close roop**
+**Now we can close rupees**
